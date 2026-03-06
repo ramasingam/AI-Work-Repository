@@ -1,1 +1,0 @@
-Content quality & E-E-A-T evaluation
